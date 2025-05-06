@@ -24,7 +24,7 @@ Sou curiosa, determinada e adoro desafios. Gosto de colocar a mão na massa e ap
 - Contribuir com projetos open source
 - Conhecer pessoas da área e trocar ideias!
 
-- Você pode entrar em contato por aqui:
+### Você pode entrar em contato por aqui:
 
 ✉️ Email: natielevitoria285@gmail.com
 💼 LinkedIn: https://www.linkedin.com/in/natiele-vit%C3%B3ria-1a9772281/
