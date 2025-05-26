@@ -1,6 +1,6 @@
 ## 👋 Olá, eu sou a Natiele!
 
-🎓 Tenho 18 anos e atualmente estou cursando o técnico em **Análise e Desenvolvimento de Sistemas**.
+🎓 Tenho 19 anos e atualmente estou cursando o técnico em **Análise e Desenvolvimento de Sistemas**.
 
 💻 Meu objetivo é crescer na área da tecnologia e construir uma carreira como **programadora**. Estou sempre buscando aprender coisas novas, desenvolver projetos e aprimorar minhas habilidades em programação.
 
